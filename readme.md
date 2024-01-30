@@ -1,6 +1,6 @@
 # your_element-2024-predictions
 #### Horse
-  ![img](https://cdn.i-scmp.com/sites/default/files/d8/images/canvas/2024/01/11/0fc55ba1-8250-4522-bfa0-deb032ebaa99_5db5b373.jpg)
+  ![img](https://cdn.i-scmp.com/sites/default/files/d8/images/canvas/2024/01/11/bb183531-c16f-4eaf-86a6-181b34189bfc_ba7066a9.jpg)
   - _**Lucky numbers:**_ 3, 8; 
 
   - _**Lucky colour:**_ light green; 
